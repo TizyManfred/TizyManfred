@@ -1,4 +1,4 @@
-# @tizy_manfred - Tiziano Manfredi
+# @tizy_manfred - Tiziano Manfredi 😎
 ### Welcome to my GitHub profile :)
 
 - 👋 Hi, I’m [@tizy_manfred](https://instagram.com/tizy_manfred/)
